@@ -1,1 +1,2 @@
-![Captura de pantalla del disco Plandemia Disco portable](https://github.com/user-attachments/assets/f28b8f68-9771-4e9b-86a3-42037adaf876)
+![Archivo recuperado_00000](https://github.com/user-attachments/assets/45e61f29-3d09-4853-a148-bf1dc3908a89)
+
